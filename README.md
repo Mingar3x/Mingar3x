@@ -1,6 +1,4 @@
 - 👋 Hi, I’m @Mingar3x
 - 👀 I’m interested in forking games
-- 🌱 I’m currently learning how to draw
-- 💞️ I’m looking to collaborate on forking games
-- 😄 Pronouns: He/Him ?
+- 😄 Pronouns: Pyro/Gayming
 - ⚡ Fun fact: i hate my username
