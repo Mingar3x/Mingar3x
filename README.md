@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @Mingar3x
-- 👀 I’m interested in forking games
-- 😄 Pronouns: Pyro/Gayming
-- ⚡ Fun fact: i hate my username
+
